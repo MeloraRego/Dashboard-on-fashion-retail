@@ -1,1 +1,0 @@
-# Dashboard-on-fashion-retail
